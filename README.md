@@ -1,0 +1,1 @@
+Day la thu muc cho qua trinh thu nghiem trong mon Ung dung tri tue nhan tao
